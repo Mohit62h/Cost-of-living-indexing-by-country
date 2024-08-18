@@ -1,1 +1,1 @@
-Cost of living indexing by country
+Cost of living indexing by country under this project working on cost of living indexing by country, cost of living rent by country, cost of local purchasing by country, cost of groceries by country, rank by country rank index by country, cost of restaurant by country
